@@ -12,4 +12,4 @@ Et register over klementinskrelling i jula mellom lille julaften og nyttårsafte
 Pauline: 3 meter og 17 cm (Fri teknikk)
 
 ### 2023: 
-(foreløpig)Ole: 2 meter og 38 cm (Fri teknikk)
+(foreløpig)Marius Knudtsen: 2 meter og 43 cm (Fri teknikk)
