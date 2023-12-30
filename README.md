@@ -8,8 +8,16 @@ Et register over klementinskrelling i jula mellom lille julaften og nyttårsafte
 4. I "Fri teknikk" er det lov med kniv og andre ikke-mekaniske redskaper
 
 ## Vinnere og lengder:
-### 2019: 
-Pauline: 3 meter og 17 cm (Fri teknikk)
 
 ### 2023: 
-(foreløpig)Marius Knudtsen: 2 meter og 43 cm (Fri teknikk)
+Fri teknikk (foreløpig):
+Onkel Martin: 2 meter og 52 cm 
+Marius Knudtsen: 2 meter og 43 cm
+Ole: 2 meter og 38 cm 
+
+Klassisk: 
+Lise Hoven: ca 30 cm
+
+### 2019: 
+Fri teknikk:
+Pauline: 3 meter og 17 cm 
