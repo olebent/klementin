@@ -11,13 +11,19 @@ Et register over klementinskrelling i jula mellom lille julaften og nyttårsafte
 
 ### 2023: 
 Fri teknikk (foreløpig):
-Onkel Martin: 2 meter og 52 cm 
+
+Onkel Martin: 2 meter og 52 cm
+
 Marius Knudtsen: 2 meter og 43 cm
+
 Ole: 2 meter og 38 cm 
 
+
 Klassisk: 
+
 Lise Hoven: ca 30 cm
 
 ### 2019: 
 Fri teknikk:
+
 Pauline: 3 meter og 17 cm 
