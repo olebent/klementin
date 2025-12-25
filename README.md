@@ -11,7 +11,9 @@ Et register over klementinskrelling i jula mellom lille julaften og nyttårsafte
 ### 2025:
 Fri teknikk (foreløpig):
 Marius Knudtsen: 4 meter og 1 cm
+
 Ole: 3 meter og 58 cm
+
 Marius Knudtsen: 3 meter og 50 cm
 
 
