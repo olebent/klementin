@@ -20,6 +20,8 @@ Marius Knudtsen: 3 meter og 50 cm
 
 Klassisk:
 
+pål: 82 cm
+
 
 ### 2023: 
 Fri teknikk:
