@@ -19,7 +19,9 @@ Marius Knudtsen: 3 meter og 50 cm
 
 
 Klassisk:
+
 Pauline: 137 cm
+
 lise: 90 cm (porøs klementin)
 
 pål: 82 cm
